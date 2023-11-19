@@ -8,9 +8,11 @@ I'm eager to collaborate with like-minded individuals for learning and improving
 Let's collaborate to delve into the exciting world of technology, share insights, and collectively enhance our skills in these crucial domains.
 
 🌐 Connect with Me:
-LinkedIn: [Zahra's LinkedIn Profile](https://www.linkedin.com/in/zhtgzr/)
 
-Email: z.tgh98@gmail.com
+LinkedIn: [LinkedIn Profile](https://www.linkedin.com/in/zhtgzr/)
+
+Email:  [Email](z.tgh98@gmail.com)
+
 
 🚀 What I'm Up To:
 💼 Security Software Intern at Mahsan Co

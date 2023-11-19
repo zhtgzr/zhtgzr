@@ -9,6 +9,7 @@ Let's collaborate to delve into the exciting world of technology, share insights
 
 🌐 Connect with Me:
 LinkedIn: [Zahra's LinkedIn Profile](https://www.linkedin.com/in/zhtgzr/)
+
 Email: z.tgh98@gmail.com
 
 🚀 What I'm Up To:
